@@ -1,0 +1,2 @@
+# algoritimomediatresnumeros
+algoritimomediatresnumeros
